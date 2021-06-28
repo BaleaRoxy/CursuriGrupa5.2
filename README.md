@@ -1,1 +1,0 @@
-# CursuriGrupa5.2
